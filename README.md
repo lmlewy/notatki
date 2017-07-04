@@ -1,0 +1,1 @@
+notatka zawieraj¹ca skrót z tutoriala do Gita
